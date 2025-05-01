@@ -7,7 +7,7 @@ Fuck no, I'm not making this aesthetic and proper.
 
 # Greetings,
 
-I am Jonah, but you can call me Whirr, bluudud, or whoever I'm cosplaying as right now.
+I am Jonah, but you can call me Whirr, or whoever I'm cosplaying as right now.
 
 I go by any pronouns, I don't give a damn about those anyway.
 
