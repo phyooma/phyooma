@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=phyooma&color=blue&label=plastic)
+![](https://komarev.com/ghpvc/?username=phyooma&color=blue)
 
 Fuck no, I'm not making this aesthetic and proper.
 
