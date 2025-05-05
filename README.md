@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=phyooma&color=blueviolet&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=phyooma&color=blue&label=plastic)
 
 Fuck no, I'm not making this aesthetic and proper.
 
@@ -7,7 +7,7 @@ Fuck no, I'm not making this aesthetic and proper.
 
 # Greetings,
 
-I am Jonah, but you can call me Whirr, or whoever I'm cosplaying as right now.
+I am Jonah, but you can call me Whirr, or whoever I'm cosplaying as right now. (mostly seen as bluudud or my oc.)
 
 I go by any pronouns, I don't give a damn about those anyway.
 
@@ -41,22 +41,22 @@ I am also sensitive, and sometimes clueless when it comes to jokes, tonetags wil
 
 ***
 ***
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-anyways i liek shoegaze mostly whirr
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+anyways i liek shoegaze mostly whirr, and i secretly admire yall
