@@ -7,9 +7,11 @@ Fuck no, I'm not making this aesthetic and proper. Bonus points if I sound high
 
 # Greetings,
 
-I am Jonah, but you can call me Whirr, or whoever I'm cosplaying as right now. (mostly seen as bluudud or my oc.)
+I am Rigel, but you can call me whoever I'm cosplaying as. (mostly seen as bluudud or my oc.)
 
-I go by any pronouns, I don't give a damn about those anyway.
+I go by any pronouns, mostly masc preferred.
+
+I draw.
 
 ***
 ***
@@ -35,26 +37,7 @@ I tend to go aggressive towards anyone sometimes, but it only happens if I'm not
 - Forsaken
 - Fundamental Paper Education
 - JoJo's Bizarre Adventure
-- Transformers (I only watched ROTB pls im new.)
+- Transformers
 
 ***
 ***
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-anyways i liek shoegaze, and i secretly admire yall
